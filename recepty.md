@@ -1,16 +1,23 @@
 # GIT kuchařka kurzu DA testování
 
-## Tatarák z olomouckých tvarůžků
+## Batátové hranolky s dipem
 
 ### Suroviny
-* 200 g olomouckých tvarůžků
-* 1 větší cibule
-* 100 g másla
-* 1 lžička hořčice
+* 2 větší batáty
+* 1 lžička červené mleté papriky
+* 1 lžička sušeného česneku
+* 1 lžička soli
+* 3 lžíce olivového oleje
+* pepř
+
+### Suroviny na dip
+* 250 ml řeckého jogurtu
+* 1 lžíce nasekané petrželky
+* 1 lžíce kopru
 * 1 stroužek česneku
-* 1 lžička sladké papriky
-* 1 lžička chilli (nemusí být)
-* 2 syrové žloutky
+* 1 jarní cibulka
+* 1/2 lžičky medu
+* sůl, pepř
 
 ### Postup přípravy
 1. Máslo utřeme s nastrouhanými tvarůžky do pěny.
