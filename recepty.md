@@ -64,5 +64,12 @@ _Autor: Hana Burian_
 
 
 ### Postup přípravy
+1. Ve velkém hrnci zahřejte dostatečné množství vody, alespoň 3 l. Osolte ji a po 1 minutě vsypte těstoviny. Vařte je na nejvyšším stupni podle návodu na obalu akorát na skus, tzv. al dente.
+2. Slaninu nakrájejte na proužky nebo kostičky, parmazán nastrouhejte najemno. 
+3. Žloutky lehce prošlehejte se sýrem a opepřete. Přilijte 1,5–2 sběračky vroucí vody z těstovin a promíchejte.
+4. V pánvi rozehřejte máslo a 1 lžičku olivového oleje, vsypte slaninu a opečte ji dokřupava. 
+5. Uvařené těstoviny slijte, ale vodu nevylévejte. Těstoviny přidejte do pánve, přilijte 1 sběračku vody, promíchejte, povařte 1 minutu, odstavte a nechte 2 minuty odpočinout.
+6. Vlijte žloutkovou směs a promíchejte, aby vznikla hladká omáčka, která obalí těstoviny. 
+7. Rozdělte na talíře a posypte parmazánem.
 
 _Autor: 
