@@ -72,4 +72,5 @@ _Autor: Hana Burian_
 6. Vlijte žloutkovou směs a promíchejte, aby vznikla hladká omáčka, která obalí těstoviny. 
 7. Rozdělte na talíře a posypte parmazánem.
 
-_Autor: 
+Pochutnejte si :-)
+_Autor: Martina Bugáňová 
