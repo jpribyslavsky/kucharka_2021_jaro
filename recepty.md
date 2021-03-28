@@ -74,4 +74,4 @@ _Autor: Hana Burian_
 
 Pochutnejte si :-)
 
-_Autor: Martina Bugáňová 
+Autor: Martina Bugáňová 
