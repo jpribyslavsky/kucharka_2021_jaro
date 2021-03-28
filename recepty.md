@@ -53,6 +53,14 @@ _Autor: Hana Burian_
 ## Spaghetti carbonara
 
 ### Suroviny
+* sůl: 2 lžíce
+* těstoviny spaghetti:  200 g
+* pacetta nebo guanciale (nebo v poměru 1 : 1)
+* parmazán: 50 g + k podávání
+* žloutky: 3 ks
+* máslo: 1 lžíce
+* olivový olej: 2 lžíce
+* čerstvě namletý černý pepř
 
 
 ### Postup přípravy
