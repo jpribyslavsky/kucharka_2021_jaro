@@ -76,8 +76,7 @@ Pochutnejte si :-)
 
 Autor: Martina Bugáňová 
 
-
-
+---
 ## Teplý salát ze zelené čočky
 
 ### Suroviny
