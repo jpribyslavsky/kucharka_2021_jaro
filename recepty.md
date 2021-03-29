@@ -75,3 +75,29 @@ _Autor: Hana Burian_
 Pochutnejte si :-)
 
 Autor: Martina Bugáňová 
+
+
+
+## Teplý salát ze zelené čočky
+
+### Suroviny
+* 200 g zelená čočka
+* 1 ks bobkový list
+* 2 lžíce dijonská hořčice
+* šťáva z jednoho citronu
+* 2 ks mrkve
+* svazek petrželky
+* 1 jarní cibulka
+* 2 stonky řapíkatého celeru
+
+### Postup přípravy
+1. Čočku uvařte dle návodu, jen do vody přidejte bobkový list.
+2. Čočku slijte a ještě za tepla smíchejte s dresinkem z oleje, hořčice a citronové šťávy.
+3. Přidejte nastrouhanou mrkev a nakrájenou petrželku, jarní cibulku i s natí a řapíkatý celer.
+
+Hodí se jako příloha ke grilovanému kuřecímu masu nebo tofu.
+Dobrou chuť!
+
+_Autor: Magda Mikesková_
+
+---
