@@ -100,3 +100,19 @@ Dobrou chuť!
 _Autor: Magda Mikesková_
 
 ---
+## Vajíčková pomazánka
+
+### Suroviny
+* 8 na tvrdo uvařených vajec
+* 1 polévková lžíce hořčice
+* 2 polévková lžíce majonézy
+* 4 sterilované okurky
+
+### Postup přípravy
+1. Středně velké sterilované okurky nakrájíme na malé kostičky.
+2. V misce smícháme hořčici a majonézu, přidáme nakrájené okurky a na kostičky nakrájená vejce.
+3. Vše promícháme a podáváme na opečeném chlebu.
+
+_Autor: Jana Wright_
+
+---
