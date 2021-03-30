@@ -118,3 +118,10 @@ _Autor: Jana Wright_
 
 ---
 ## Kokosové kuličky
+
+### Suroviny
+* 1/2 hrnku kešu oříšků
+* 1 hrnek čerstvého kokosového másla (asi ze 3 hrnků kokosu)
+* 1/2 hrnku agávového sirupu
+* 3/4 hrnku strouhaného kokosu
+* strouhaný kokos na obalení
