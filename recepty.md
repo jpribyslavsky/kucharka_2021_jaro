@@ -117,3 +117,18 @@ _Autor: Magda Mikesková_
 _Autor: Jana Wright_
 
 ---
+ ---
+## Lívance z kefírového mléka
+
+### Suroviny
+* 400 g kefírového mléka
+* 250 g polohrubé mouky 
+* 2 vejce
+* 1 prášek do pečiva
+
+### Postup přípravy
+1. Ingredience smícháme v misce.
+2. Po částech lejeme na pánev a smažíme na mírném ohni z obou stran.
+3. Podáváme s ovocem, čokoládou, tvarohem, jogurtem, zakysanou smetanou, oříšky.... prostě jak je libo. 
+
+_Autor: Tereza Kroulíková_
