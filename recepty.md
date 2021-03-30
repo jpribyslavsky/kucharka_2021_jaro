@@ -117,23 +117,3 @@ _Autor: Magda Mikesková_
 _Autor: Jana Wright_
 
 ---
-
-## Kokosové kuličky
-
-### Suroviny
-* 1/2 hrnku kešu oříšků
-* 1 hrnek čerstvého kokosového másla (asi ze 3 hrnků kokosu)
-* 1/2 hrnku agávového sirupu
-* 3/4 hrnku strouhaného kokosu
-* strouhaný kokos na obalení
-
-### Postup přípravy
-1. Kokosové máslo si vyrobíme pomocí kuchyňského robota. 3 hrnky strouhaného kokosu mixujeme tak dlouho, dokud se neuvolní tuk. Máslo by mělo být téměř tekuté.
-2. Připravené kokosové máslo vložíme do misky.
-3. Přidáme jemně rozmixované kešu ořechy, agávový sirup, strouhaný kokos a dobře promícháme.
-4. Tvarujeme kuličky o průměru cca 1,5 - 2 cm, které obalujeme v kokosu.
-5. Kuličky vložíme do chladničky a necháme uležet. 
-
-Pozor u nás doma kuličky z lednice mizí závratnou rychlostí. Takže se stává, že nestihly řádně vychladnout :-)
-
-_Autor: Pavlína Vargová_
