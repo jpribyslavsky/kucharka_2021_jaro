@@ -109,9 +109,10 @@ _Autor: Magda Mikesková_
 * 4 sterilované okurky
 
 ### Postup přípravy
-1. Středně velké sterilované okurky nakrájíme na malé kostičky.
-2. V misce smícháme hořčici a majonézu, přidáme nakrájené okurky a na kostičky nakrájená vejce.
-3. Vše promícháme a podáváme na opečeném chlebu.
+1. Vajíčka musí být uvařená na tvrdo :)
+2. Středně velké sterilované okurky nakrájíme na malé kostičky.
+3. V misce smícháme hořčici a majonézu, přidáme nakrájené okurky a na kostičky nakrájená vejce.
+4. Vše promícháme a podáváme na opečeném chlebu.
 
 _Autor: Jana Wright_
 
