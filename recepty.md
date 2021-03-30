@@ -105,7 +105,7 @@ _Autor: Magda Mikesková_
 ### Suroviny
 * 8 na tvrdo uvařených vajec
 * 1 polévková lžíce hořčice
-* 2 polévková lžíce majonézy
+* 2 polévkové lžíce majonézy
 * 4 sterilované okurky
 
 ### Postup přípravy
