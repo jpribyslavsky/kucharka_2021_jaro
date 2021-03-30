@@ -117,7 +117,7 @@ _Autor: Magda Mikesková_
 _Autor: Jana Wright_
 
 ---
- ---
+ 
 ## Lívance z kefírového mléka
 
 ### Suroviny
@@ -132,3 +132,29 @@ _Autor: Jana Wright_
 3. Podáváme s ovocem, čokoládou, tvarohem, jogurtem, zakysanou smetanou, oříšky.... prostě jak je libo. 
 
 _Autor: Tereza Kroulíková_
+   
+___
+## Lohikeitto (od pana Cuketky)
+### Suroviny
+* 800 g lososa (pěkné vyšší filety, bez kůže)
+* 500 g brambor
+* 200 ml 30% smetany
+* 1 l vývaru
+* 2 mrkve
+* 1 pórek
+* 1 cibule
+* 1 svazek kopru
+* 2 lžíce másla
+* 1 lžíce mouky
+* sůl, cukr, ocet
+### Postup přípravy
+1. Pórek nakrájejte nadrobno. Cibuli nasekejte nadrobno. Mrkev oloupejte
+   a nakrájejte na kousky. Brambory oloupejte a nakrájejte na kostky.
+   Lososa zbavte kůže a nakrájte na úhledné dílky – nugety (cca 3 x 3 x 7 cm). Připraveného lososa můžete rovnou i osolit a nechat odpočívat v lednici (maso zpevní a bude líp ochucené).
+2. V hrnci rozehřejte máslo. Přidejte cibuli a nechte zesklovatět. Přidejte pórek. Osolte, promíchejte a nechte zavadnout. Přidejte mrkev, promíchejte a krátce orestujte.
+3. Přidejte mouku a krátce promíchejte. Zalijte vývarem, přidejte brambory a znovu mírně dosolte. Přiveďte k mírnému varu a povařte zakryté asi 20 minut, než brambory změknou.
+4. Zmírněte plamen na minimum a přidejte smetanu. Udělejte finální dochucení - cukr, ocet a sůl jak bude třeba. Očištěný kopr zbavte tuhých stonků, nasekejte nadrobno a vmíchejte do polévky.
+5. Úplně nakonec opatrně vložte díly lososa. Přiklopte poklicí a nechte dojít asi 5 minut.
+  
+  
+   _Autor: Jitka Šírová_
