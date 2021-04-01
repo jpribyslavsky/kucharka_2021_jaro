@@ -158,3 +158,30 @@ ___
   
   
    _Autor: Jitka Šírová_
+
+---
+
+## Cizrna na paprice s pórkem
+
+### Suroviny (vařím bajvoko, množství surovin berte s rezervou :D)
+* voda
+* olej
+* sůl
+* pepř
+* 250 g suché cizrny
+* 1 větší cibule
+* 1 lžíce sladké pariky
+* 1/2 pórku
+* 2 větší červené kapie
+* 1 kelímek smetany na vaření
+
+### Postup přípravy
+1. Cizrnu uvaříme doměkka.
+2. Kapie rozkrojíme na čtrtiny, očistíme a naskládáme na plech vyložený pečícím papírem,
+   vložíme do trouby vyhřáté na na 180 °C a pečeme asi 20 minut, dokud nezačne tmavnout.
+3. Cibuli nakrájíme nadrobno a pórek na kolečka. Osmažíme na hluboké pánvi dokud cibule nezesklovatí a pórek nezměkne.
+4. Cibuli a pórek stáhneme z ohně a zasypeme paprikou, krátce promícháme.
+5. Přidáme cizrnu a zalijeme vodou, aby byla cizrna ponořená, osolíme, opepříme a vrátíme na plotnu.
+6. Upečenou papriku rozmixujeme, přidáme ke zbytku, přilijeme smetanu, promícháme a necháme krátce prohřát.
+
+   Autor: Leona Štěrbová
