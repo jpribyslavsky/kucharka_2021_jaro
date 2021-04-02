@@ -185,3 +185,25 @@ ___
 6. Upečenou papriku rozmixujeme, přidáme ke zbytku, přilijeme smetanu, promícháme a necháme krátce prohřát.
 
    Autor: Leona Štěrbová
+    
+---
+
+## Pomazánka ze sušených rajčat
+
+Suroviny:
+
+- 50g kešu ořechů
+- 80g sušených rajčat
+- 40g parmazánu
+- 100g nízkotučného tvarohu
+- 1stroužek česneku
+- 2lžíce olivového oleje
+                     
+### Postup přípravy
+1. Máslo utřeme s nastrouhanými tvarůžky do pěny.
+2. Přidáme nadrobno nakrájenou cibuli, papriku, hořčici, čili a natřený česnek a žloutky.
+3. Vše promícháme a podáváme na opečeném, očesnekovaném chlebu s dobře vychlazeným pivem.
+
+Přeji dobrou chuť. Konzumaci nedoporučuji před důležitou schůzkou, pokud tedy není online :-)
+
+_Autor: Marie Adamišová_
