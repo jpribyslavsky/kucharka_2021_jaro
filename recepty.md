@@ -209,3 +209,41 @@ Doporučuji podávat na opečeném pečivu (pro celiaki, nejlépe bzl housku)
 Ať Vám chutná ;-)
 
 _Autor: Marie Adamišová_
+
+## Zapečené rajčatové noky
+
+### Suroviny
+* 500g bramborových noků
+* 1	střední cibule
+* 1/2 menší cukety
+* 50g plátkové anglické slaniny
+* 1 střední stroužek česneku
+* 1 velká lžíce rajčatového protlaku
+* 400g drcených rajčat v plechovce
+* 2 velké lžíce ricotty
+* 1 velká hrst čerstvé bazalky
+* olivový olej
+* trocha másla na smažení
+* 2 balení mozzarelly
+* 70g parmazán
+* sůl a čerstvě mletý pepř
+* voda podle potřeby
+
+### Postup přípravy
+1. Cibulku si nakrájíme nahrubo, cuketu na rozkrojíme na čtvrtiny a nakrájíme na tenké plátky, slaninu také nakrájíme nahrubo. 
+2. Dáme rozehřát troubu na 220 stupňů a pokud máme, použijeme funkci gril, noky nám zapeče ale i klasický program. 
+3. Do kastrůlku nebo na hlubší pánev (použijte takové nádobí, které může pak rovnou do trouby nebo pak použijte zapékací mísu)
+   si dáme rozehřát olivový olej s máslem a na středním stupni na něm opečeme společně cibuli, slaninu a cuketu dozlatova. 
+4. Na minutu přidáme rajčatový protlak, prolisovaný česnek a společně ještě tak minutu opékáme. 
+5. Směs pak zalijeme drcenými rajčaty, osolíme, opepříme a necháme trochu probublat. 
+6. Omáčku ochutnáme a případně doladíme solí nebo pepřem.
+7. Po chvíli vaření přidáme ricottu, čerstvou bazalku, bramborové noky a promícháme. Pokud je omáčka hodně hustá, podlijeme ji trochou vody. Stačí ale opravdu maličko.
+8. Noky necháme v omáčce chvilku (3-5 minut) změknout, pak stáhneme z plotny a do směsi natrháme jednu mozzarellu. 
+   Promícháme a horní část zasypeme nastrouhaným parmazánem, natrhanou druhou mozzarellou a dáme na pár minut zapéct do trouby.
+9. Hotové noky zdobíme čerstvou bazalkou a podáváme ideálně hned čerstvé.
+ 
+Dobrou chuť :)
+
+_Autor: Lenka Dosedělová_
+
+---
