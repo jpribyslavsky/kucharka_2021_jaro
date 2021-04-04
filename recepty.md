@@ -248,4 +248,53 @@ _Autor: Lenka Dosedělová_
 
 ---
 
+## Segedínsky guláš
+
+### Suroviny
+*  1,8 - 2 kg plece bravčové
+*  1 kg (najlepšie domáca) kapusta kyslá
+*  1 ks vačšia cibuľa
+*  3 strúčiky cesnak
+*  2 PL masť
+*  1/2 konzervy paradajky lúpané
+* 2 PL paprika červená mletá
+* 2 ks list bobkový
+*  1,5 l (neosolený) vývar z bravčových kostí
+*  200 g (31 %) smotana na šľahanie
+*  2 PL múka hladká
+*  podľa chuti soľ
+* 6 guličiek korenie nové
+*  1 ČL rasca drvená
+
+### Postup přípravy
+1. V hrnci na rozpálenej masti orestujeme nadrobno 
+   nakrájanú cibuľu dosklovita. 
+   Pridáme nadrobno nakrájaný cesnak a orestujeme.
+1. Potom pridáme umyté na kocky nakrájané mäsko,
+   opečieme z každej strany a necháme pekne zatiahnuť.
+1. Potom posypeme mletou sladkou paprikou a už len krátko orestujeme, 
+   aby sa paprika nepripálila a nezhorkla. 
+   Hneď na to dáme do hrnca 2 bobkové listy, 
+   6 guličiek nového korenia, 1 ČL rasce.
+1. Zalejeme horúcim vývarom, ale nie celým, 
+   len aby bolo mäsko ponorené a pridáme polovicu 
+   paradajok z konzervy, tie dodajú segedínu 
+   fantastickú chuť. Prikryté dusíme 20 minút.
+1. Po uplynutí 20 minút pridáme k mäsu scedenú 
+   nakrájanú kapustu. Osolíme, ak treba prilejeme 
+   ešte z vývaru čo nám ostal a zakryté dusíme 
+   cca 45 minút.
+1.Skúsime mäsko a keď sa nám zdá, že už je skoro 
+   mäkké, tak si dohladka rozmiešame múku 
+   so smotanou. K mäsu prilejeme smotanu s múkou 
+   a varíme odokryté na miernom ohni ešte 15 
+   až 20 minút. Občas premiešame.
+1. Hotovo, dobrú chuť.
+
+_Autor: kuchárka na https://varecha.pravda.sk/. 
+Kopírovateľ, ktorý sa práve chystá na varenie: 
+Daniela Smetanová_
+
+---
+
 
