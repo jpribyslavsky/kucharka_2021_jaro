@@ -320,3 +320,33 @@ _Autor: https://www.recepty.cz/recept/skvela-ryba-se-zeleninou-16388._
 _Kopírovatelka: Kateřina Klíčová_
 
 ---
+
+## Rajčatový krém
+
+### Suroviny
+* olivový olej
+* 3 červené cibule
+* 3 mrkve
+* 3 stroužky česneku
+* 2 plechovky sekaných rajčat
+* 6 g cukru
+* 15 g rajčatového protlaku
+* 10 g čerstvé bazalky plus bazalka na ozdobení (dá se použít i sušená bazalka místo čerstvé)
+* 700 ml vývaru (pro vegetariány zeleninový bujon)
+* 1 lžíce soli
+* 2 lžičky mletého černého pepře
+* 175 ml smetany nebo jedna plechovka kokosového mléka
+* (chlebové krutony na ozdobu nebo sýrový toust jako příloha) 
+
+### Postup
+1. Olivový olej ohřejeme v hrnci, přidáme cibuli a mrkev a asi deset minut opékáme, dokud zelenina nezměkne.
+2. Přidáme česnek a vaříme asi minutu.
+3. Přidáme rajčata, cukr, protlak, bazalku, vývar, sůl a pepř a dobře promícháme.
+4. Polévku přivedeme k varu, snížíme teplotu a necháme bez pokličky vařit na mírném plameni po dobu 30 až 40 minut, dokud se rajčata neuvaří doměkka.
+5. Do polévky přidáme smetanu/kokosový olej a rozmixujeme.
+6. Můžeme dozdobit krutony nebo podávat se sýrovým toustem.
+
+_Autor: Tereza Pavlíková_
+_Původní recept: https://foodnetwork.co.uk/recipes/cream-fresh-tomato-soup/
+
+---
