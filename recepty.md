@@ -347,6 +347,7 @@ _Kopírovatelka: Kateřina Klíčová_
 6. Můžeme dozdobit krutony nebo podávat se sýrovým toustem.
 
 _Autor: Tereza Pavlíková_
-_Původní recept: https://foodnetwork.co.uk/recipes/cream-fresh-tomato-soup/
+
+_Původní recept: https://foodnetwork.co.uk/recipes/cream-fresh-tomato-soup/_
 
 ---
